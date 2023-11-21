@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Kurnia Anggie Oktriana
+- welcome to visit to github me 
